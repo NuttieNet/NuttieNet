@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NuttieNet
-- 👀 I’m interested in ... Learning Anythimg
-- 🌱 I’m currently learning ... Not Sure Working On Figuring All This OUT
+- 👀 I’m interested in ... Learning Anything
+- 🌱 I’m currently learning ... Not Sure Working On Figuring All This Out
 - 💞️ I’m looking to collaborate on ... Everything
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
